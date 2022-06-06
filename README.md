@@ -46,3 +46,4 @@ Bunlarda Dilendigi Kişiler 😋
 ![image](https://media.discordapp.net/attachments/983398450597093436/983399108331073546/IMG_3999.png?width=479&height=679)
 ![image](https://media.discordapp.net/attachments/983398450597093436/983399108645634088/IMG_4001.png?width=477&height=679)
 ![image](https://media.discordapp.net/attachments/983398450597093436/983399443976044564/unknown.png)
+![image](https://media.discordapp.net/attachments/983398450597093436/983401509196791868/unknown.png?width=345&height=678)
