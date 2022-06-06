@@ -5,10 +5,15 @@ Paylaşıyorum Bot Zaten Canzade nin Botu Hoşgeldin Mesajı Falan Eklemeye Cal�
 Atılıcak Zaten Bunlar 1 2 Gün İcerisinde Yalvarıp Kod İstedigi SS ler
 
 acerhizm#0360
+/
 Jaylen#1404
+/
 SnowOuts ⁸⁸#1040
+/
 Parzival.#1502
+/
 Passenger#1997
+/
 Cyber Râte#9876
 
 Bunlarda Dilendigi Kişiler 😋
