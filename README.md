@@ -47,3 +47,7 @@ Bunlarda Dilendigi Kişiler 😋
 ![image](https://media.discordapp.net/attachments/983398450597093436/983399108645634088/IMG_4001.png?width=477&height=679)
 ![image](https://media.discordapp.net/attachments/983398450597093436/983399443976044564/unknown.png)
 ![image](https://media.discordapp.net/attachments/983398450597093436/983401509196791868/unknown.png?width=345&height=678)
+![image](https://media.discordapp.net/attachments/983398450597093436/983402740342476880/unknown.png?width=615&height=679)
+[image](https://media.discordapp.net/attachments/983398450597093436/983402740342476880/unknown.png?width=615&height=679)
+[image](https://media.discordapp.net/attachments/983398450597093436/983402740560568380/unknown.png?width=372&height=678)
+[image](https://media.discordapp.net/attachments/983398450597093436/983402740791279646/unknown.png)
