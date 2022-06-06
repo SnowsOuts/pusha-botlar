@@ -4,6 +4,14 @@ Yardım Ettim Ve Sonrasında Aradakaşlarıma Snow Denden KOD Dileniyor Dedigi �
 Paylaşıyorum Bot Zaten Canzade nin Botu Hoşgeldin Mesajı Falan Eklemeye Calışmış Eşşolu Eşşek Ama Yapamamış Onu bile Buraya Yeni SS ler 
 Atılıcak Zaten Bunlar 1 2 Gün İcerisinde Yalvarıp Kod İstedigi SS ler
 
+acerhizm#0360
+Jaylen#1404
+SnowOuts ⁸⁸#1040
+Parzival.#1502
+Passenger#1997
+Cyber Râte#9876
+
+Bunlarda Dilendigi Kişiler 😋
 
 ![image](https://media.discordapp.net/attachments/971875586723176448/983375027464450078/unknown.png)
 ![image](https://media.discordapp.net/attachments/971875586723176448/983379305763586048/unknown.png)
@@ -29,3 +37,7 @@ Atılıcak Zaten Bunlar 1 2 Gün İcerisinde Yalvarıp Kod İstedigi SS ler
 ![image](https://media.discordapp.net/attachments/971875586723176448/983394429777899600/unknown.png)
 ![image](https://media.discordapp.net/attachments/971875586723176448/983394400027693116/unknown.png)
 ![image](https://media.discordapp.net/attachments/971875586723176448/983394365177225297/unknown.png)
+![image](https://media.discordapp.net/attachments/983398450597093436/983399108058427453/IMG_3998.png?width=535&height=678)
+![image](https://media.discordapp.net/attachments/983398450597093436/983399108331073546/IMG_3999.png?width=479&height=679)
+![image](https://media.discordapp.net/attachments/983398450597093436/983399108645634088/IMG_4001.png?width=477&height=679)
+![image](https://media.discordapp.net/attachments/983398450597093436/983399443976044564/unknown.png)
