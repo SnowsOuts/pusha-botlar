@@ -21,6 +21,8 @@ remornn#0671
 
 Bunlarda Dilendigi Kişiler 😋
 
+https://discord.gg/Tqf6mYeF99 Burasıda Bizim Yer
+
 ![image](https://media.discordapp.net/attachments/971875586723176448/983375027464450078/unknown.png)
 ![image](https://media.discordapp.net/attachments/971875586723176448/983379305763586048/unknown.png)
 ![image](https://media.discordapp.net/attachments/971875586723176448/983147643884666941/unknown.png)
